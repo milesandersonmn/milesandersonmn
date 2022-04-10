@@ -1,5 +1,5 @@
 - Hi, I’m @milesandersonmn
-- I’m interested in population genetics and crop breeding.
+- I’m interested in plant science, population genetics and crop breeding.
 - I’m currently a masters student in horticultural science.
 - I’m looking to collaborate on anything related to plant genetics.
 - How to reach me: milesandersonmn@gmail.com or miles.anderson@tum.de
